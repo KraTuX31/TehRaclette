@@ -6,6 +6,7 @@ Date prévue: **Vendredi 11 Décembre**
 **Liste des participants (officiel) :**
 * Antoine de ROQUEMAUREL
 * Florentin LE MOAL (TIN pour les intimes)
+* Florent BERBIE
 * Cédric ROHAUT
 * Benoît SAUVERE
 * Elliot FELGINES
